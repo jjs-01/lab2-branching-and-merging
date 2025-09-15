@@ -12,6 +12,9 @@
 ## Instructions:
 1. Preheat the oven to 375°F (190°C).
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, and ground cinnamon.
+3. Pour into cake tray and put in oven
+4. Take it out and let cool
+5. Put store-bought icing on cake. 
 
 ## Additional Directions by Alice:
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
